@@ -1,4 +1,4 @@
-[![Anton_averin.gif](https://s7.gifyu.com/images/Anton_averin.gif)](https://gifyu.com/image/QVuf)
+[![Anton_averin.gif](https://s7.gifyu.com/images/Anton_averin.gif)]
 
 
 ### Hi there 👋
